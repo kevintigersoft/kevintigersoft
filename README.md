@@ -7,7 +7,7 @@
 
 
  - 🌱 I’m learning **WEB3** for now.
- - 📫 How to reach me **kalisangabokevin@gmail.com**
+ - 📫 How to reach me **kevin@tigersoft.rw**
  - ⚡ Fun fact :  **I love Taking pictures.**
 
 
