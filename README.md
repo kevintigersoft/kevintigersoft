@@ -8,7 +8,7 @@
 
  - 🌱 I’m learning **WEB3** for now.
  - 📫 How to reach me **kevin@tigersoft.rw**
- - 🌐 Visit my porfolio via **kalisangabokevin.com**
+ - 🌐 Visit my porfolio via **www.kalisangabokevin.com**
  - ⚡ Fun fact :  **I love Taking pictures.**
 
 
