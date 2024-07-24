@@ -8,7 +8,7 @@
 
  - 🌱 I’m learning **Angular&C#**.
  - 📫 How to reach me **kevin@tigersoft.rw**
- - 🌐 Visit my porfolio via **www.kalisangabokevin.com**
+ - 🌐 Visit my porfolio via **www.kalisangabokevin.me**
  - ⚡ Fun fact :  **I love Taking pictures.**
 
 
